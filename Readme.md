@@ -27,5 +27,6 @@ _**Publicaciones**_
 [Publicación aleatorea de twitter](https://twitter.com/Pedro_B_Marin/status/1134985637084446720?cxt=HHwWgIC2uY3bo8AfAAAA)
 
 ![Imagen de la publicacion](file:///C:/Users/gf0604-1/Downloads/adef.jpg)  
+![Imagen](https://pbs.twimg.com/media/D8BHQV_XUAATE8L?format=jpg&name=900x900)  
 Imagen de autoría propia
  
